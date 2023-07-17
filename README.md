@@ -1,3 +1,0 @@
-# perfil
-meu perfil
-contatos
